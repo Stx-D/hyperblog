@@ -5,3 +5,5 @@ Hacer un buen Md es una buena practica para el proyecto, queda pendiente elabora
 no se que poner jajasalu2
 
 -Creado por Stiven Diaz
+
+Disponible para todo el mundo
